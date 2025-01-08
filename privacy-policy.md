@@ -53,4 +53,4 @@ We may update this Privacy Policy from time to time. The latest version will alw
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-Email: [support@example.com](mailto:support@example.com)
+Email: [ut.mehrotra@gmail.com](mailto:ut.mehrotra@gmail.com)
